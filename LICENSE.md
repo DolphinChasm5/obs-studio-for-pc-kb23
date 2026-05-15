@@ -1,4 +1,4 @@
-# 
+# Enhance OBS Studio for PC | OBS Studio for Windows with smart OBS Studio for PC | OBS Studio for Windows Addon | video-encoding + scene-switching, the #1 addon. Includes
 
 
 
